@@ -1,1 +1,3 @@
-# haho
+# A biztonsági őrök kidobják
+
+az országgyűlési képviselőket, vígan mosolyogva a kamerába. Amit nem értek az az, hogy hogyan merik ezt megtenni. Az egy dolog, hogy a "bajtársaik" védelmét élvezik, de nyilván lesz olyan, hogy hazamennek, van nekik családjuk, civil életük. Nekünk meg fényképeink és emlékezetünk....
